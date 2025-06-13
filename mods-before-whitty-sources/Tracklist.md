@@ -1,0 +1,26 @@
+# Mods Before Whitty Tracklist (In Order)
+- Dorkus64 - Floor One
+- waltomusic - Backstage (Pause Theme)
+- waltomusic - Back Then (GF Pause)
+- Transport Tycoon Deluxe - Cruise Control
+- Gran Turismo 5 - Yuki Oike (Lounge Music)
+- Lena Raine - wavedash.ppt
+- Super Monkey Ball 2 - Monkey Shot
+- 2 Mello - bad flute 
+- Rozebud - Serene (Main Menu) 
+- Sheep Raider - Track 12
+- R4 / Ridge Racer Type 4 - Naked Glow
+- Street Fighter III 3rd Strike - Sean & Oro Stage Longshoresman
+- Sonic Adventure 2 - Believe in Myself (Instrumental)
+- de Blob - Euphoric
+- Gran Turismo 2 - West City
+- LongestSoloEver - Main Menu Theme (Funkin' Aside)
+- waltomusic - Gettin' Ready (Menu Theme)
+- Kazumi Totaka - September 2015 (Nintendo eShop Music)
+- 2 Mello - that's just it 
+- Ape Escape, Soichi Terada - Time Station
+- R4 / Ridge Racer Type 4  - Lucid Rhythms
+- Kawaisprite - Philly Nice Erect (Instrumental)
+- Semi Detached - Funky Plucker!
+- Sock.clip - Lo-Fight (Instrumental)
+- Earthbound - Because I Love You
